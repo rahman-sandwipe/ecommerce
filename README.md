@@ -1,1 +1,1 @@
-Click to see a preview of the admin dashboard. <a href="Click to see a preview of the admin dashboard."><strong>Click Here</strong></a>
+Click to see a preview of the admin dashboard. <a href="https://youtu.be/VbRDWH2TuQc"><strong>Click Here</strong></a>
